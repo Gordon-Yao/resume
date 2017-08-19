@@ -1,4 +1,4 @@
-# 个人简
+# 个人简历
 ## 联系方式
 
 - Email： [syncviip@gmail.com](syncviip@gmail.com)、[syncher@qq.com](syncher@qq.com)、[pgbvip@163.com](pgbvip@163.com) （```用您喜欢的邮箱联系我```）
